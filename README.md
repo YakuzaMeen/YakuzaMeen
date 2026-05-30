@@ -141,3 +141,6 @@ I’m familiar with **clean code, version control, and agile methodologies (Scru
 </p>
 
 ⭐️ Thanks for visiting my profile! Feel free to explore my repositories and connect with me.
+
+---
+# CIERRA TU CUENTA OE BABOSO
